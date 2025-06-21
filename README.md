@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://i.postimg.cc/kgQxHP58/Untitled1062-20250621120030.png">   
+<img src="https://i.postimg.cc/Sj0MZgFD/IMG-1698.png">   
 <br><a href="https://rentry.co/skulls">ponytown info</a>。   ⠀⠀<a href=https://ishmael.atabook.org>atabook</a>。  ⠀⠀ <a href=https://pronouns.cc/@girleraser>prns cc</a>。  ⠀ <a href=https://girleraser.straw.page>straw page</a>。   ⠀⠀<a href="https://rentry.co/hm">my rentry</a>。  ⠀ ⠀<br
 </p>
 
